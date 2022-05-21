@@ -1,5 +1,5 @@
 
-# Super Anime Chat WOOHOO
+# Super Anime Chat - WooHoo
 
 
 
